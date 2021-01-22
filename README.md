@@ -1,6 +1,8 @@
 # Awakening
 This Git will help you explore and understand the tidal wave of macro events unfolding in this historic time for humanity
 
+Historic Documents - "It is the duty of every good citizen to use all the opportunities which occur to him, for preserving documents relating to the history of our country." —Thomas Jefferson, 1823:  https://patriotpost.us/documents
+
 Videos:
 
 Do You Hear Me Running: https://youtu.be/g_bCNz0lpCw
