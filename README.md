@@ -16,7 +16,11 @@ US Marines - These Are The Days of Elijah:  https://rumble.com/vcor0r-us-marines
 Q - We Have Told You What is Coming (Jan 15th Post):  https://rumble.com/vcuw6r-we-have-told-you-whats-coming-q.html
 
      *  Q Posts:  https://qposts.online/
+     
+     Jan 21st:  Editor thought - is Q real?  Who is the psyop being run against?
 
 Fair use notice:
 Use the information found in the videos as a starting point for conducting your own research and conduct your own due diligence before making any significant investing decision
 
+
+The System is Fiction:  https://www.bitchute.com/video/dU1hmkI4bRhY/
