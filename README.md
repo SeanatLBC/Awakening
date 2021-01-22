@@ -23,4 +23,4 @@ Fair use notice:
 Use the information found in the videos as a starting point for conducting your own research and conduct your own due diligence before making any significant investing decision
 
 
-The System is Fiction:  https://www.bitchute.com/video/dU1hmkI4bRhY/
+The System is Fiction (Sui Generis):  https://www.bitchute.com/video/dU1hmkI4bRhY/
