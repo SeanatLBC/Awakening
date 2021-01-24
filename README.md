@@ -5,6 +5,8 @@ Historic Documents - "It is the duty of every good citizen to use all the opport
 
 The Marhall Report (Fear not, there will be a new capitol built and an end to income taxes paid to the tax collectors of the Corporation that is now in the hands of a new administration):  https://themarshallreport.wordpress.com/2021/01/20/trump-ode-to-the-corporation/
 
+Learning about The Great Awakening:  https://thegreatawakening.ca/about-the-great-awakening/
+
 Videos:
 
 Do You Hear Me Running: https://youtu.be/g_bCNz0lpCw
