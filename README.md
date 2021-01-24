@@ -3,6 +3,8 @@ This Git will help you explore and understand the tidal wave of macro events unf
 
 Historic Documents - "It is the duty of every good citizen to use all the opportunities which occur to him, for preserving documents relating to the history of our country." —Thomas Jefferson, 1823:  https://patriotpost.us/documents
 
+The Marhall Report (Fear not, there will be a new capitol built and an end to income taxes paid to the tax collectors of the Corporation that is now in the hands of a new administration):  https://themarshallreport.wordpress.com/2021/01/20/trump-ode-to-the-corporation/
+
 Videos:
 
 Do You Hear Me Running: https://youtu.be/g_bCNz0lpCw
